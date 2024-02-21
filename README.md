@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @User15071998
+- 👋 Hi, I’m @Juanxojaramillo
 - 👀 I’m interested in Video Games
 - 🌱 I’m currently learning System engineering
 - 💞️ I’m looking to collaborate on whata i capable of
